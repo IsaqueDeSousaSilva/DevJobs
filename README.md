@@ -2,7 +2,7 @@
 
 trabalho realizado na aula
 
-Alanos:
+Alunos:
 
 Isaque de Sousa Silva
 
